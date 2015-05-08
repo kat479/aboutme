@@ -2,4 +2,4 @@
 
 ###M V S KARTHIK                                 
 
-                                                          ![me](https://avatars1.githubusercontent.com/u/7887453?v=3&s=460)
+                                                          ![me](https://lh3.googleusercontent.com/s_UIkF1qJAwoK9N49xhnfMOBBiQNjRo9U1ZnqGEortU=s207-p-no)
